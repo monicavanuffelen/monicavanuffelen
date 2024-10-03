@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @monicavanuffelen
+- 👀 I’m interested in art, hertiage, nature, traveling & atmospheric blackmetal
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on getting more knowlegde about the background of (museum) databases
+- 📫 How to reach me m.vanuffelen@cultureelerfgoed.nl
+- ⚡ Fun fact: one chocolate a day, makes the doctor away
